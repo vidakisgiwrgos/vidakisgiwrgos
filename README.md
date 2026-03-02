@@ -32,4 +32,4 @@ I care about building systems that are:
 - I recently became an uncle
 - I rarely consume caffeine
 - Dragon Ball is my all time favourite series
-- Hobbies: Football, Gym, IT
+- Hobbies: Football, Gym, IT, Riding Motorcycles, Trips
